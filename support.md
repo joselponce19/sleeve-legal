@@ -44,7 +44,7 @@ For more information, see the Sleeve Privacy Policy.
 
 ## Contact Sleeve
 
-**Email:** [PUT YOUR SUPPORT EMAIL HERE]
+**Email:** sleeveappsupport@gmail.com
 
 When contacting support, please include:
 
